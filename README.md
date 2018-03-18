@@ -1,4 +1,4 @@
-#DEVX
+# DEVX
 
 DEVX & KICKICO community special presale collaboration between Developeo and Kickico to empower the real owners of Blockchain; a chance to participate on a special presale, which is the most advantageous part of the ICO in terms of financial gains. Developeo is offering this Special Presale for the DEVX community on KICKICO with the lowest prices per the DEVX token.During the PRE-ICO and ICO phase the prices will be significantly higher. (i.e 4x-5x-6x-7x-8x)
 
