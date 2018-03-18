@@ -2,10 +2,10 @@
 
 DEVX & KICKICO community special presale collaboration between Developeo and Kickico to empower the real owners of Blockchain; a chance to participate on a special presale, which is the most advantageous part of the ICO in terms of financial gains. Developeo is offering this Special Presale for the DEVX community on KICKICO with the lowest prices per the DEVX token.During the PRE-ICO and ICO phase the prices will be significantly higher. (i.e 4x-5x-6x-7x-8x)
 
-Limited Community Presale Kickico Price: 0.05$ + bonuses (This Monday)
-Private Sale for Venture Capital: 0.05$ lesser bonuses
-PREICO: 0.15$ to 0.25$
-ICO: 0.30$ to 0.40$
+Limited Community Presale Kickico Price: 0.05$ + bonuses (This Monday)  
+Private Sale for Venture Capital: 0.05$ lesser bonuses  
+PREICO: 0.15$ to 0.25$  
+ICO: 0.30$ to 0.40$  
 Airdropalert estimated DEVX Token value: 10-15$
 
 - Developeo DEVX University, DEVX Bootcamps and DEVX Certification programs will ensure that the best next-gen intensive education in the most up-to-date curriculum will reach to its students.
